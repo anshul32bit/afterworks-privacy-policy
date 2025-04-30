@@ -25,3 +25,4 @@ We may update this Privacy Policy from time to time. Any changes will be reflect
 ## 7. Contact
 If you have questions about this policy, you can contact us at: **afterhoursofworks@gmail.com**
 
+                                          © 2025 AfterWorks. All rights reserved.
